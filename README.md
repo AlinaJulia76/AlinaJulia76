@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @AlinaJulia
+- 👀 I’m interested in digital Media Marketing
+- 🌱 I’m currently learning Content writing
+- 💞️ I’m looking to collaborate on SEO Projects
+- 📫 How to reach me through Gmail
